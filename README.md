@@ -1,1 +1,1 @@
-# DeGenPrime-ez
+# DeGenPrime-Ez
